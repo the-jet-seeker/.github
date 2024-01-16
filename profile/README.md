@@ -1,5 +1,4 @@
-
-The Jet Seeker
+[The Jet Seeker | Prague](https://t.me/the_jet_seeker_prague)
 ===
 
 Problem
